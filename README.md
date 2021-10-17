@@ -1,6 +1,9 @@
 # Certified ethical hacker in bullet points
 ![alt text](https://github.com/KICSrwp/CEH-Learning/blob/main/0.png?raw=true)
 
+Instructor: Muhammad Anwar
+Contact # 03215277353
+
 ## Content
 
 1. Introduction

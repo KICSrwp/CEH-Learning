@@ -3,7 +3,7 @@
 
 Instructor: Muhammad Anwar
 
-Address: KICS Institue, 2nd Floor Anwar plaza, 6th Road satellite town, Rawalpindi
+Address: KICS Institute, 2nd Floor Anwar plaza, 6th Road satellite town, Rawalpindi
 ______________________
 Contact # 03215277353
 

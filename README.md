@@ -2,6 +2,7 @@
 ![alt text](https://github.com/KICSrwp/CEH-Learning/blob/main/0.png?raw=true)
 
 Instructor: Muhammad Anwar
+Address: KICS Institue, 2nd Floor Anwar plaza, 6th Road satellite town, Rawalpindi
 ______________________
 Contact # 03215277353
 
